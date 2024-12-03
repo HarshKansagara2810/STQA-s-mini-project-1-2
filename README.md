@@ -1,0 +1,1 @@
+# STQA-s-mini-project-1-2
